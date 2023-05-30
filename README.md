@@ -1,8 +1,4 @@
-![299d7cccb5263b70e10aa312a8c41cc6](https://github.com/ravenv1000/ravenv1000/assets/135006445/a90f2c1e-915f-4c3d-93d3-de64f32bd3a3)
-
-
-
-
+![719863](https://github.com/ravenv1000/ravenv1000/assets/135006445/f976f545-c7cb-40bd-b863-5dea763efa4f)
 
 
 ### Hi there 👋
